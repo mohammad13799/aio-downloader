@@ -3,6 +3,463 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 03:12
+---
+
+## VahidOOnLine — post 238998
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238998_1778283769.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگو با خبرنگاران هشدار داد که اگر تمامی مفاد توافق‌نامه صلح با تهران به طور کامل امضا و نهایی نشود، واشنگتن مسیر متفاوتی را در پیش خواهد گرفت. ترامپ با اشاره به احتمال ازسرگیری عملیات‌های نظامی تحت عنوان «پروژه آزادی» تاکید کرد که در صورت شکست مذاکرات، ایالات متحده با رویکردی تهاجمی‌تر به میدان بازمی‌گردد. او در این باره گفت: اگر مسائل طبق برنامه پیش نرود، ممکن است به پروژه آزادی بازگردیم؛ اما این بار نسخه «پلاس» آن خواهد بود؛ یعنی پروژه آزادی به علاوه اقدامات سخت‌گیرانه دیگر.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238997
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238997_1778283770.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+آکسیوس به نقل از دو منبع آگاه گزارش داد، قطری‌ها به‌عنوان یکی از دست‌کم سه کانال ارتباطی غیرعلنی میان آمریکا و جمهوری اسلامی نقش دارند و از ارتباطات خود با فرماندهان ارشد سپاه که در تصمیم‌گیری‌های حکومت ایران درباره مذاکرات با آمریکا نقش دارند، استفاده می‌کنند.
+به گفته این منابع آگاه، قطری‌ها تلاش‌های خود را با میانجیگران پاکستانی هماهنگ می‌کنند. نخست‌وزیر قطر روز پنج‌شنبه پیش از سفر به واشینگتن با همتای پاکستانی خود گفت‌وگو کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238996
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238996_1778283770.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+♦️مقتدی صدر، روحانی سرشناس عراقی و رهبر جریان صدر، در پیامی خطاب به نخست‌وزیر عراق تاکید کرد افراد و جریان‌های دارای شاخه مسلح نباید در کابینه آینده این کشور حضور داشته باشند.
+صدر خواستار آن شد که گروه‌های مسلح یا در قالب تشکیلاتی با عنوان «سربازان شعائر دینی» زیر نظر هیات حج و عمره سازماندهی شوند یا به نهادهای امدادرسان و بشردوستانه تبدیل شوند. او گفت گروه‌هایی که این اقدام را نپذیرند، قانون‌شکن محسوب خواهند شد.
+مقتدی صدر در بخش دیگری از پیام خود بر حفظ استقلال عراق و دوری از هرگونه دخالت خارجی «نه شرقی و نه غربی» تاکید کرد و گفت دولت آینده باید خواسته‌های مردم عراق را برآورده کند. او همچنین افزود هیچ فردی از جریان صدر در کابینه آینده حضور نخواهد داشت و هیچ وزیری نماینده این جریان نخواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238995
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238995_1778283771.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+♦️آکسیوس گزارش داد که قطر در هفته‌های اخیر تلاش‌های میانجی‌گری پشت‌پرده میان واشنگتن و تهران را از سر گرفته و اکنون به یکی از دست‌کم سه کانال غیررسمی و کلیدی ارتباطی میان دو کشور تبدیل شده است. به گفته منابع آگاه، دوحه با بهره‌گیری از ارتباطات مستقیم خود با فرماندهان ارشد سپاه پاسداران که نقش موثری در تصمیم‌گیری‌های مذاکراتی تهران دارند، به صورت هماهنگ با میانجی‌های پاکستانی عمل می‌کند. این در حالی است که قطر پیش از آغاز جنگ در ژوئن ۲۰۲۵ نیز نقش فعالی در سایه داشت و مقامات ارشد آن در اکثر نشست‌های حساس، از جمله آخرین دیدار در ژنو، حضور داشتند.
+بر اساس این گزارش، دوحه پس از حملات موشکی و پهپادی جمهوری اسلامی به خاک خود، برای مدتی از ادامه نقش میانجی‌گری خودداری کرده بود، اما با فشارهای دیپلماتیک واشنگتن و گفتگوی مستقیم دونالد ترامپ با امیر قطر، بار دیگر به این عرصه بازگشته است. در همین راستا، جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز جمعه در واشنگتن با نخست‌وزیر قطر دیدار کرد تا آخرین وضعیت پاسخ تهران به طرح صلح پیشنهادی را بررسی کند. وزارت خارجه قطر نیز با تایید این رایزنی‌ها، بر ضرورت پاسخ مثبت تمامی طرف‌ها برای رسیدن به یک توافق جامع و صلح پایدار تاکید کرده است تا از این طریق ریشه‌های بحران در منطقه به صورت مسالمت‌آمیز برطرف شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238994
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238994_1778283771.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با اشاره به تحریم‌های جدید آمریکا علیه صنعت پهپادی جمهوری اسلامی، در ایکس نوشت: «در حالی که سران بازمانده سپاه مانند موش‌هایی در یک کشتی در حال غرق شدن گرفتار شده‌اند، وزارت خزانه‌داری در کارزار خشم اقتصادی خود بی‌وقفه عمل می‌کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238993
+
+
+<div dir="rtl">
+♦️روز جمعه، مصادف با پنجمین سالگرد ازدواج چارلی کرک، فعال سیاسی و بنیان‌گذار سازمان محافظه‌کار «ترنینگ پوینت یو‌اس‌اس» (Turning Point USA) با همسرش اریکا است؛ پیوندی که در هشتم مه ۲۰۲۱ آغاز شد اما با فرجامی تلخ و تکان‌دهنده به پایان رسید. کرک که یکی از تاثیرگذارترین فعالان سیاسی نزدیک به جریان راست در آمریکا بود، در پی یک حمله تروریستی هدفمند، به ضرب گلوله در دانشگاه یوتا جان باخت؛ در حالی که هنوز ابعاد دقیق و انگیزه نهایی عاملان این ترور در هاله‌ای از ابهام قرار دارد و پرونده آن از سوی نهادهای امنیتی در دست بررسی است. از این زوج که در طول چهار سال زندگی مشترک به یکی از نمادهای همبستگی خانوادگی در فضای سیاسی تبدیل شده بودند، یک دختر ۳ ساله و یک پسر ۱ ساله به یادگار مانده است. تیراندازی مرگبار به چارلی کرک هنگام سخنرانی در مقابل جمعیت، از اتفاق‌های تاثیرگذاری بود که بسیاری را وحشت‌زده کرد و توجه‌ها را بیش از پیش به موضوع خشونت سیاسی جلب کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238992
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238992_1778283772.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+ترامپ به خبرنگاران درباره چشم‌انداز توافق با جمهوری اسلامی گفت: «اگر همه‌چیز امضا و نهایی نشود، مسیر متفاوتی را در پیش خواهیم گرفت. اگر اتفاقی نیافتد، ممکن است به پروژه آزادی تنگه هرمز بازگردیم، اما آن پروژه آزادی پلاس خواهد بود؛ یعنی پروژه آزادی به‌اضافه موارد دیگر.»
+او در پاسخ به پرسش یک خبرنگار مبنی بر اینکه آیا جمهوری اسلامی عمدا روند مذاکرات را به کندی پیش می‌برد، گفت: «به‌زودی خواهیم فهمید.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238990
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238990_1778283773.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+♦️عرفان شکورزاده، دانشجوی ۲۹ ساله دانشگاه علم و صنعت و رتبه نخست مقطع کارشناسی ارشد مهندسی هوافضا، در آستانه اجرای حکم اعدام قرار گرفت.
+خبرنامه امیرکبیر گزارش داد حکم اعدام عرفان شکورزاده، دانشجوی کارشناسی ارشد مهندسی هوافضا ـ فناوری ماهواره دانشگاه علم و صنعت ایران، سه روز پیش در دیوان عالی جمهوری اسلامی تایید و پس از آن برای اجرای حکم از زندان اوین به زندان قزل‌حصار منتقل شده است.
+براساس این گزارش، عرفان شکورزاده بهمن‌ماه ۱۴۰۳ با اتهام «جاسوسی و همکاری با کشورهای متخاصم» بازداشت شد. منبعی مطلع به خبرنامه امیرکبیر گفته است این دانشجو حدود ۹ ماه در سلول انفرادی نگهداری و برای اعتراف اجباری تحت شکنجه قرار گرفته بود.
+عرفان شکورزاده متولد ۱۳۷۶ و دانش‌آموخته مهندسی برق دانشگاه تبریز است و در سوابق علمی او، فعالیت در حوزه نرم‌افزارهای تست و موقعیت‌یابی ماهواره دیده می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 238989
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238989_1778283773.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+♦️«وال‌استریت ژورنال» به نقل از منابع آگاه، روز جمعه، ۱۸ اردیبهشت‌ماه، گزارش داد که واشنگتن و تهران با همکاری میانجی‌گران، در حال تدوین یک یادداشت تفاهم ۱۴ ماده‌ای هستند تا چارچوب مذاکراتی یک‌ماهه برای پایان دادن به درگیری‌های اخیر را تعیین کنند. بر اساس این طرح که ممکن است دور جدید گفتگو درباره آن آن از هفته آینده در اسلام‌آباد پاکستان آغاز شود، تهران برای نخستین بار برای بحث درباره برنامه هسته‌ای خود اعلام آمادگی کرده و در مقابل، کاهش محدودیت‌ها در تنگه هرمز و بازنگری در محاصره بنادر ایران توسط آمریکا در دستور کار قرار گرفته است. با این حال، دونالد ترامپ، رئیس جمهوری آمریکا ضمن موافقت با توقف موقت طرح اسکورت کشتی‌ها برای ایجاد فضا جهت گفتگو، هشدار داده است که در صورت عدم دستیابی به توافق، واشنگتن گزینه بازگشت به حملات هوایی را روی میز دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOnline — post 75344
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75344_1778283774.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+ترامپ به خبرنگاران درباره چشم‌انداز توافق با جمهوری اسلامی گفت: «اگر همه‌چیز امضا و نهایی نشود، مسیر متفاوتی را در پیش خواهیم گرفت. اگر اتفاقی نیافتد، ممکن است به پروژه آزادی تنگه هرمز بازگردیم، اما آن پروژه آزادی پلاس خواهد بود؛ یعنی پروژه آزادی به‌اضافه موارد دیگر.»
+او در پاسخ به پرسش یک خبرنگار مبنی بر اینکه آیا جمهوری اسلامی عمدا روند مذاکرات را به کندی پیش می‌برد، گفت: «به‌زودی خواهیم فهمید.»
+
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 336215
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336215_1778283774.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+آکسیوس به نقل از دو منبع آگاه گزارش داد قطری‌ها به‌عنوان یکی از دست‌کم سه کانال ارتباطی غیرعلنی میان آمریکا و جمهوری اسلامی نقش دارند و از ارتباطات خود با فرماندهان ارشد سپاه که در تصمیم‌گیری‌های حکومت ایران درباره مذاکرات با آمریکا نقش دارند، استفاده می‌کنند.
+به گفته این منابع آگاه، قطری‌ها تلاش‌های خود را با میانجیگران پاکستانی هماهنگ می‌کنند. نخست‌وزیر قطر روز پنج‌شنبه پیش از سفر به واشینگتن با همتای پاکستانی خود گفت‌وگو کرد.
+
+https://iranintl.com/202605080469
+</div>
+
+## IranIntlTV — post 336214
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336214_1778283775.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با اشاره به تحریم‌های جدید آمریکا علیه صنعت پهپادی جمهوری اسلامی، در ایکس نوشت: «در حالی که سران بازمانده سپاه مانند موش‌هایی در یک کشتی در حال غرق شدن گرفتار شده‌اند، وزارت خزانه‌داری در کارزار خشم اقتصادی خود بی‌وقفه عمل می‌کند.»
+https://iranintl.com/202605085523
+</div>
+
+## IranIntlTV — post 336213
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336213_1778283775.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+ترامپ به خبرنگاران درباره چشم‌انداز توافق با جمهوری اسلامی گفت: «اگر همه‌چیز امضا و نهایی نشود، مسیر متفاوتی را در پیش خواهیم گرفت. اگر اتفاقی نیافتد، ممکن است به پروژه آزادی تنگه هرمز بازگردیم، اما آن پروژه آزادی پلاس خواهد بود؛ یعنی پروژه آزادی به‌اضافه موارد دیگر.»
+او در پاسخ به پرسش یک خبرنگار مبنی بر اینکه آیا جمهوری اسلامی عمدا روند مذاکرات را به کندی پیش می‌برد، گفت: «به‌زودی خواهیم فهمید.»
+
+https://iranintl.com/202605081916
+</div>
+
+## Shin_Persian — post 5904
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_5904_1778283776.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+Shin ✓ @hey_itsmyturn
+Fri, 08 May 2026 23:37:02 UTC
+
+#USAF 🇺🇸 BACN bird over southwestern #Iraq 🇮🇶
+(AF83F0 | 24-9049)
+
+(+ Fighter jet activity over Baghdad)
+
+فارسی
+
+#USAF (نیروی هوایی ایالات متحده) 🇺🇸 پرنده BACN برفراز جنوب غربی #Iraq (عراق) 🇮🇶
+(AF83F0 | 24-9049)
+
+(+ فعالیت جنگنده‌ها برفراز بغداد)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5903
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_5903_1778283777.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+Shin ✓ @hey_itsmyturn
+Fri, 08 May 2026 23:32:59 UTC
+
+#USAF 🇺🇸 tanker (AE5F9B | 18-46048) on AAR mission over the Gulf of Oman.
+
+فارسی
+
+#USAF (نیروی هوایی ایالات متحده) 🇺🇸 تانکر (AE5F9B | 18-46048) در مأموریت AAR (سوخت‌گیری هوایی) بر فراز دریای عمان.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5902
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_5902_1778283777.mp4">🎬 Download video</a>
+</div>
+<div dir="rtl">
+Shin ✓ @hey_itsmyturn
+Fri, 08 May 2026 23:30:02 UTC
+
+Sums the situation up pretty well
+
+فارسی
+
+وضعیت را به خوبی خلاصه می‌کند
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5901
+
+
+<div dir="rtl">
+Shin ✓ @hey_itsmyturn
+Fri, 08 May 2026 23:11:59 UTC
+
+Continuous Jet activity over Baghdad since 2 hours ago.
+#Iraq 🇮🇶
+
+فارسی
+
+فعالیت مداوم جت‌ها بر فراز بغداد از ۲ ساعت پیش تاکنون.
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5900
+
+
+<div dir="rtl">
+Shin ✓ @hey_itsmyturn
+Fri, 08 May 2026 23:01:17 UTC
+
+NOW @ 2300Z -
+Jet activity over Amman, Amman Governorate, #Jordan
+
+فارسی
+
+هم‌اکنون در ساعت ۲۳۰۰ زولو (۰۲:۳۰ بامداد به وقت تهران) -
+فعالیت جت‌ها بر فراز امان، استان امان، #اردن
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5899
+
+
+<div dir="rtl">
+Shin ✓ @hey_itsmyturn
+Fri, 08 May 2026 22:58:20 UTC
+
+Economic Fury, #Iran
+
+As part of the Economic Fury campaign, the U.S. Treasury @USTreasury (OFAC) has sanctioned a network of 10 individuals and entities across China, the UAE, Belarus, and Hong Kong for procuring weapons and UAV components for the Iranian regime.
+Weapons & MANPADS Procurement
+This network facilitated technology and weapons acquisitions (including man-portable air-defense systems) for the Center for Innovation and Technology Cooperation (CITC):
+• Yushita Shanghai International Trade Co Ltd (China): Facilitator for CITC.
+• AE International Trade Co Limited (Hong Kong): Received millions in funding for procurement efforts.
+• Elite Energy FZCO (UAE): Transferred funds to AE International for CITC.
+• HK Hesin Industry Co Limited (Hong Kong): Intermediary used to obfuscate the Iranian end-user.
+• Armory Alliance LLC (Belarus): Intermediary for Iranian procurement.
+• Mohammadmahdi Maleki: Belarus-based Iranian employee of Armory Alliance.
+• Mohammed Ali Tolibov: CEO of Armory Alliance and arms facilitator.
+IRGC Weapons Procurement
+• Mustad Limited (Hong Kong): Facilitated millions of dollars in weapons procurement transactions for the IRGC.
+UAV & Missile Components
+Targeting the supply of aerospace-grade raw materials (carbon fiber and honeycomb fabric) for the Shahed-series UAVs:
+• Hitex Insulation Ningbo Company Limited (China): Supplied materials to Pishgam Electronic Safeh Company (PESC).
+• Li Genping (China): Legal representative and manager of Hitex Insulation.
+Campaign Context
+Secretary Scott Bessent stated the "Economic Fury" campaign remains unrelenting in targeting Iran's defense industrial base. Concurrently, the State Department designated four additional entities for conventional arms activities.
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217238
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217238_1778283778.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+🔺دونالد ترامپ از احتمال آغاز عملیاتی فراتر از «پروژه آزادی» خبر داد
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا، عصر جمعه ۱۸ اردیبهشت در مورد «پروژه آزادی» تنگه هرمز به خبرنگاران گفت «اگر همه چیز امضا نشود، ما مسیر متفاوتی را در پیش خواهیم گرفت... اگر این اتفاق نیفتد، ممکن است به پروژه آزادی برگردیم - اما این پروژه آزادی پلاس خواهد بود، به معنی پروژه آزادی به علاوه چیزهای دیگر.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8148110.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217237
+
+
+<div dir="rtl">
+🔺جی‌دی ونس و نخست وزیر قطر در واشنگتن دیدار و گفت‌وگو کردند
+
+▪️معاون رئیس جمهوری آمریکا، جی‌دی ونس، روز جمعه ۱۸ اردیبهشت با نخست‌وزیر و وزیر امور خارجه قطر، محمد بن عبدالرحمن بن جاسم آل ثانی، در واشنگتن دیدار و با او درباره ایران گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8148107.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217236
+
+
+<div dir="rtl">
+⚡️درخواست اقدام عملی جهانی برای جلوگیری از اعدام‌ها از سوی شورای راهبردی جمهوری‌خواهان
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 13731
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13731_1778283778.mp4">🎬 Download video</a>
+</div>
+<div dir="rtl">
+شبتون بخیر ...🖤
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 280527
+
+
+<div dir="rtl">
+🔻پایان پوشش زنده روز جمعه
+
+در اینجا پوشش زنده تحولات ایران و آمریکا در روز جمعه ۱۸ اردیبهشت ۱۴۰۵ به پایان می‌رسد. از این که تا این لحظه همراه بودید سپاسگزاریم.
+
+برای دنبال کردن تازه‌ترین خبرها و گزارش‌های روز شنبه ۱۹ اردیبهشت ۱۴۰۵ اینجا را بخوانید.
+https://bbc.in/4ttCTif
+@BBCPersian
+</div>
+
+## BBCPersian — post 280526
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_280526_1778283779.jpg" alt="Photo">
+</div>
+<div dir="rtl">
+🔻حمله شیمیایی سال ۲۰۱۳ به حومه دمشق بازادشت کرده است.
+
+به‌گزارش خبرگزاری فرانسه، فرد بازداشت‌شده «خردل احمد دیوب» است که سرتیپ سابق حکومت اسد و رئیس پیشین شاخه اطلاعات نیروی هوایی در درعا بود و به «نقش مستقیم در نقض سازمان‌یافته حقوق غیرنظامیان» متهم شده است.
+
+در اوت ۲۰۱۳، ارتش تحت فرمان بشار اسد متهم شد با استفاده از سلاح شیمیایی مناطقی را که در کنترل مخالفان بود هدف قرار داده است؛ حمله‌ای که بنا بر ارزیابی نهادهای حقوق بشری و اطلاعات آمریکا، بیش از ۱۴۰۰ مرد، زن و کودک را کشت.
+
+حکومت اسد در اوج جنگ داخلی سوریه مسئولیت این حمله را رد کرد، اما برای جلوگیری از حملات احتمالی آمریکا، پذیرفت زرادخانه شیمیایی خود را تحویل دهد. پس از آن بشار اسد بیش از یک دهه دیگر در قدرت باقی ماند تا این‌که در سال ۲۰۲۴ توسط شورشیان اسلام‌گرا به رهبری احمد شرع، رئیس‌جمهور کنونی سوریه، سرنگون شد.
+
+ادامه مطلب⬇️
+📸EPA/Shutterstock
+https://bbc.in/4uDgEY0
+@BBCPersian
+</div>
+
+## configx2ray — post 38675
+
+
+<div dir="rtl">
+tg://socks?server=STARLINK8.vayzro.ir&port=42528&user=%40Porteqal3&pass=Portiqal tg://socks?server=STARLINK8.vayzro.ir&port=42528&user=%40Porteqal3&pass=Portiqal https://t.me/proxy?server=QHMEI.MTP.IPSENTER.NET&port=443&secret=eee28b56c84fb54c3b826db2fa…
+</div>
+
+## configx2ray — post 38674
+
+
+<div dir="rtl">
+tg://socks?server=STARLINK8.vayzro.ir&port=42528&user=%40Porteqal3&pass=Portiqal
+
+tg://socks?server=STARLINK8.vayzro.ir&port=42528&user=%40Porteqal3&pass=Portiqal
+
+https://t.me/proxy?server=QHMEI.MTP.IPSENTER.NET&port=443&secret=eee28b56c84fb54c3b826db2fab1c96711676f6f676c652e636f6d
+
+یک دقیقه زمان بدید وصل میشه❤️
+
+بدونه vpn باید وصل بشید 
+⚡️
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38672
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38672">📎 Download file</a>
+</div>
+<div dir="rtl">
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38671
+
+<div align="center">
+  <a href="https://t.me/ConfigX2ray/38671">📎 Download file</a>
+</div>
+<div dir="rtl">
+کانفیگ برای Npv tunnel ⭕️
+
+به هیچ وج دانلود نزنید باهاش
+❤️
+
+رمز فایل : @ConfigX2ray
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+## configx2ray — post 38670
+
+<div align="center">
+  <a href="telegram/content/configx2ray_38670_1778283781.jpg">🎬 Download video</a>
+</div>
+<div dir="rtl">
+socks://Og@62.220.126.56:30170#https://t.me/ConfigX2ray
+
+socks://Og@62.220.126.92:30376#https://t.me/ConfigX2ray
+
+ترکیبی با سایفون وصله 
+✅
+
+آموزش استفادع : 
+👇
+https://t.me/ConfigX2ray0/1665
+
+Channel : https://t.me/ConfigX2ray
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 02:13
 ---
 
